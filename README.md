@@ -1,1 +1,0 @@
-# Curso-practica-Henry
